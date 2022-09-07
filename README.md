@@ -1,9 +1,12 @@
-siemanoooooooooooo
-
-ayoooooooooooooooo
-
-fb: Oskar Sikorski
-
-ig: shelovessikorski
-
-snap: oski5470
+🖥 Computer specialist 🖥
+~
+👨🏼‍💻 IT fanatic 👨🏼‍💻
+~
+🚀 future bilionare 💵💷💶💴
+~
+📱 Social media: 📱
+      Instagram - shelovessikorski
+      Twitter - sik0rskiii
+      Snapchat - oski5470
+      Facebook - Oskar Sikorski
+ collab = dm
