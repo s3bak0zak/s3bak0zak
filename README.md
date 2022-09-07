@@ -2,10 +2,10 @@
 
 🖥 Computer specialist 🖥
 
-~
+
 👨🏼‍💻 IT fanatic 👨🏼‍💻
 
-~
+
 🚀 future bilionare 💵💷💶💴
 
 ~
